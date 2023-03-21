@@ -1,1 +1,0 @@
-# hsymal-Teknologi-Keamanan-dan-Privasi-Data
